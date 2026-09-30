@@ -1,5 +1,5 @@
-Hi, im a computer scinece student at the uni of west england in my second year.
+Hi, I'm a computer science student at the University of West England in my third year.
 
-Project ill add late 
+Project will add late 
 
 Skills 
